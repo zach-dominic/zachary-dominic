@@ -6,7 +6,7 @@ Currently, I am nearing the end of my studies at TripleTen in their Business Ana
 
 Some facts about me:
  - I enjoy learning new things regardless of the difficulty
- - I've just recently bagan cooking and enjoy trying to make new things
+ - I've just recently began cooking and enjoy trying to make new things
  - My goal for 2024 is to try and get my foot in the door of BIA/BA in any way I can
 
 
