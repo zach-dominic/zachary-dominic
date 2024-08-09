@@ -11,4 +11,6 @@ Some facts about me:
 
 Feel free to contact and connect with me here on GitHub or<a href='https://www.linkedin.com/in/zachary-dominic/' target=_blank><u><here></u> LinkedIn </a></p>
 
+You can view my resume<a href='https://docs.google.com/document/d/1Vg5_ZoIZFD34zYS4q5HciXAHz9Rjyv7UBf61WwLiSL0/edit?usp=sharing' target=_blank><u><here></u> here </a></p>
+
 
