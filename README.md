@@ -9,4 +9,6 @@ Some facts about me:
  - I've just recently began cooking and enjoy trying to make new things
  - My goal for 2024 is to try and get my foot in the door of BIA/BA in any way I can
 
+Feel free to contact and connect with me here on GitHub or LinkedIn <a href='https://www.linkedin.com/in/zachary-dominic/' target=_blank><u><here></u> , </a></p>
+
 
